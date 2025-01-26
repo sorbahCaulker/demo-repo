@@ -1,3 +1,3 @@
 # demo
 
-Sorbah Caulker is wealthy!
+Sorbah Caulker is a sierra leonean
